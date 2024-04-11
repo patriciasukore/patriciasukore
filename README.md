@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @patriciasukore
-- 👀 I’m interested 💝 front end and fullstack 💗 jobs👩‍💻
+- 👀 I’m interested in 💝 front end and fullstack 💗 jobs👩‍💻
 - 🌱 I’m currently working on my YouTube 🌈 tech channel👩‍💻🥳 www.youtube.com/@patsukorefoundationfwc
 - 💞️ I’m looking to collaborate on eliminating poverty 🤑 and SGBV 😭
 - by leveraging on tech education👨‍💻 👩‍💻 🧑‍💻 for women and girls
