@@ -22,9 +22,7 @@ You can click the Preview link to take a look at your changes.
 My Specialties:
 ![images (8)](https://github.com/patriciasukore/patriciasukore/assets/128140402/2a113eed-6449-43a7-9cdd-f290971346a6)
 ![Python-logo-notext svg](https://github.com/patriciasukore/patriciasukore/assets/128140402/36c7850e-184a-4cb4-a944-436966e13efd)
-![images (2)](https://github.com/patriciasukore/patriciasukore/assets/128140402/604f92a5-af72-42b2-be95-869cc698dd77)![Screenshot_20240402_162545_Gallery](https://github.com/patriciasukore/patriciasukore/assets/128140402/04e479d8-4315-4958-82d9-aad6c57b2230)
 
-![images (4)](https://github.com/patriciasukore/patriciasukore/assets/128140402/c94401bb-3f68-4248-b212-fa718d7eda2d)
 ![images (3)](https://github.com/patriciasukore/patriciasukore/assets/128140402/d3832d9e-d5ba-4d6e-bac6-7fef28803fbd)
 ![images-1](https://github.com/patriciasukore/patriciasukore/assets/128140402/1f0c1d49-c6ad-4dd8-9fc4-5a0a3800a04a)
 
