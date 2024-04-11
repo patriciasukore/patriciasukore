@@ -19,7 +19,8 @@ You can click the Preview link to take a look at your changes.
 👾 Cybersecurity analyst.
 👯 Mentor and instructor 
 
-![Screenshot_20240411_182151_Canva](https://github.com/patriciasukore/patriciasukore/assets/128140402/7ad4dcbe-e564-41ae-9a47-c41674e666cf)
+![Screenshot_20240411_184721_Canva](https://github.com/patriciasukore/patriciasukore/assets/128140402/557a8844-f6d0-4f9f-86f0-524754b22a87)
+
 
 Foundation:
 https://www.patricia-sukore-foundation-for-women-and-children.com/
