@@ -17,9 +17,11 @@ You can click the Preview link to take a look at your changes.
 📦 Responsive Webdev.
 🔌 Technical Support Engineer.
 👾 Cybersecurity analyst.
-👯 Mentor and instructor 
+👯 Mentor and Instructor
+![Purple Abstract A Letter Free Logo_20240411_193055_0000](https://github.com/patriciasukore/patriciasukore/assets/128140402/d6180014-95a7-408d-827a-3b52d711a5da)
+![Purple Abstract A Letter Free Logo_20240411_193925_0000](https://github.com/patriciasukore/patriciasukore/assets/128140402/c3b4c8f7-f2f1-482b-b1b4-f32e46d88dc7)
 
-![Screenshot_20240411_184721_Canva](https://github.com/patriciasukore/patriciasukore/assets/128140402/557a8844-f6d0-4f9f-86f0-524754b22a87)
+
 
 
 Foundation:
