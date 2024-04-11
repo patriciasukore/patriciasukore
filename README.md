@@ -27,5 +27,5 @@ My Specialties:
 ![images-1](https://github.com/patriciasukore/patriciasukore/assets/128140402/1f0c1d49-c6ad-4dd8-9fc4-5a0a3800a04a)
 
 My Foundation: https://www.patricia-sukore-foundation-for-women-and-children.com/
-![Screenshot_20240402_162545_Gallery](https://github.com/patriciasukore/patriciasukore/assets/128140402/2a2be3c0-8921-41ba-8b6a-0acdc949913a)
+![Screenshot_20240402_162545_Gallery](https://github.com/patriciasukore/patriciasukore/assets/128140402/34a53a98-b751-418e-8546-4a579ad849d9)
 
