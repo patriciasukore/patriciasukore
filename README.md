@@ -19,7 +19,8 @@ You can click the Preview link to take a look at your changes.
 👾 Cybersecurity analyst.
 👯 Mentor and Instructor
 ![Purple Abstract A Letter Free Logo_20240411_193055_0000](https://github.com/patriciasukore/patriciasukore/assets/128140402/d6180014-95a7-408d-827a-3b52d711a5da)
-![Purple Abstract A Letter Free Logo_20240411_193925_0000](https://github.com/patriciasukore/patriciasukore/assets/128140402/c3b4c8f7-f2f1-482b-b1b4-f32e46d88dc7)
+![Purple Abstract A Letter Free Logo_20240411_221401_0000](https://github.com/patriciasukore/patriciasukore/assets/128140402/5746de4c-2c4e-4821-a448-4a45b7ec673f)
+
 
 
 
