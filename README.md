@@ -19,13 +19,14 @@ You can click the Preview link to take a look at your changes.
 👾 Cybersecurity analyst.
 👯 Mentor and instructor 
 
-My Specialties:
-![images (8)](https://github.com/patriciasukore/patriciasukore/assets/128140402/2a113eed-6449-43a7-9cdd-f290971346a6)
-![Python-logo-notext svg](https://github.com/patriciasukore/patriciasukore/assets/128140402/36c7850e-184a-4cb4-a944-436966e13efd)
-![images (3)](https://github.com/patriciasukore/patriciasukore/assets/128140402/d3832d9e-d5ba-4d6e-bac6-7fef28803fbd)
-![images-1](https://github.com/patriciasukore/patriciasukore/assets/128140402/1f0c1d49-c6ad-4dd8-9fc4-5a0a3800a04a)
-![images (5)](https://github.com/patriciasukore/patriciasukore/assets/128140402/b75883c6-d335-4336-a831-532f1a92d1bb)
+![Screenshot_20240411_182151_Canva](https://github.com/patriciasukore/patriciasukore/assets/128140402/7ad4dcbe-e564-41ae-9a47-c41674e666cf)
 
-My Foundation: https://www.patricia-sukore-foundation-for-women-and-children.com/
-![Screenshot_20240402_162545_Gallery](https://github.com/patriciasukore/patriciasukore/assets/128140402/34a53a98-b751-418e-8546-4a579ad849d9)
+Foundation:
+https://www.patricia-sukore-foundation-for-women-and-children.com/
+![Screenshot_20240402_162545_Gallery](https://github.com/patriciasukore/patriciasukore/assets/128140402/f011743c-b051-460a-bc6d-6e4a038e7edf)
+
+
+
+
+
 
