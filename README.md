@@ -19,10 +19,8 @@ You can click the Preview link to take a look at your changes.
 👾 Cybersecurity analyst.
 👯 Mentor and Instructor
 ![Blue and Yellow Professional Business YouTube Thumbnail_20240412_165425_0000](https://github.com/patriciasukore/patriciasukore/assets/128140402/ce2b1356-e22d-4925-a103-1000e1b04f51)
+![Blue and Yellow Professional Business YouTube Thumbnail_20240412_222933_0000](https://github.com/patriciasukore/patriciasukore/assets/128140402/6f8e6b46-7566-4a0f-8303-dcdf04f40e04)
 
-Foundation:
-https://www.patricia-sukore-foundation-for-women-and-children.com/
-![Screenshot_20240402_162545_Gallery](https://github.com/patriciasukore/patriciasukore/assets/128140402/f011743c-b051-460a-bc6d-6e4a038e7edf)
 
 
 
