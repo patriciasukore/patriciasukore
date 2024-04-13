@@ -18,9 +18,8 @@ You can click the Preview link to take a look at your changes.
 🔌 Technical Support Engineer.
 👾 Cybersecurity analyst.
 👯 Mentor and Instructor
-![Blue and Yellow Professional Business YouTube Thumbnail_20240412_165425_0000](https://github.com/patriciasukore/patriciasukore/assets/128140402/ce2b1356-e22d-4925-a103-1000e1b04f51)
-![3d image]
-(https://www.linkedin.com/in/patricia-omonzele-sukore-9ba05034?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app).
+![Blue and Yellow Professional Business YouTube Thumbnail_20240412_165425_0000](https://github.com/patriciasukore/patriciasukore/assets/128140402/8ddb13be-ab85-4aa9-8f86-c1010d5e6c16)
+![Blue and Yellow Professional Business YouTube Thumbnail_20240413_121235_0000](https://github.com/patriciasukore/patriciasukore/assets/128140402/4241fd1e-7e7d-4ea5-b06e-b0bf01521ccb)
 ![Blue and Yellow Professional 
 Business YouTube Thumbnail_20240412_222933_0000](https://github.com/patriciasukore/patriciasukore/assets/128140402/6f8e6b46-7566-4a0f-8303-dcdf04f40e04)
 
