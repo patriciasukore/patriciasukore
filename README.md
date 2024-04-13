@@ -1,3 +1,4 @@
+![2024041311382797](https://github.com/patriciasukore/patriciasukore/assets/128140402/e7c81b85-17af-4100-9282-fa112ec3f0a6)
 - 👋 Hi, I’m @patriciasukore
 - 👀 I’m interested in 💝 front end and fullstack 💗 jobs👩‍💻
 - 🌱 I’m currently working on my YouTube 🌈 tech channel👩‍💻🥳 www.youtube.com/@patsukorefoundationfwc
@@ -19,7 +20,7 @@ You can click the Preview link to take a look at your changes.
 ![Blue and Yellow Professional Business YouTube Thumbnail_20240412_165425_0000](https://github.com/patriciasukore/patriciasukore/assets/128140402/8ddb13be-ab85-4aa9-8f86-c1010d5e6c16)
 ![Blue and Yellow Professional Business YouTube Thumbnail_20240413_121235_0000](https://github.com/patriciasukore/patriciasukore/assets/128140402/4241fd1e-7e7d-4ea5-b06e-b0bf01521ccb)
 ![Blue and Yellow Professional 
-Business YouTube Thumbnail_20240412_222933_0000](https://github.com/patriciasukore/patriciasukore/assets/128140402/6f8e6b46-7566-4a0f-8303-dcdf04f40e04)
+Business YouTube](patsfwc@gmail.com)
 
 
 
