@@ -1,4 +1,4 @@
-![2024041311382797](https://github.com/patriciasukore/patriciasukore/assets/128140402/e7c81b85-17af-4100-9282-fa112ec3f0a6)
+
 - 👋 Hi, I’m @patriciasukore
 - 👀 I’m interested in 💝 front end and fullstack 💗 jobs👩‍💻
 - 🌱 I’m currently working on my YouTube 🌈 tech channel👩‍💻🥳 www.youtube.com/@patsukorefoundationfwc
