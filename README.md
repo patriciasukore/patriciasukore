@@ -19,7 +19,10 @@ You can click the Preview link to take a look at your changes.
 👾 Cybersecurity analyst.
 👯 Mentor and Instructor
 ![Blue and Yellow Professional Business YouTube Thumbnail_20240412_165425_0000](https://github.com/patriciasukore/patriciasukore/assets/128140402/ce2b1356-e22d-4925-a103-1000e1b04f51)
-![Blue and Yellow Professional Business YouTube Thumbnail_20240412_222933_0000](https://github.com/patriciasukore/patriciasukore/assets/128140402/6f8e6b46-7566-4a0f-8303-dcdf04f40e04)
+
+https://www.canva.com/design/DAGCN8gPaLY/67Q13ZzTySqn0ZSdSoJ32Q/edit?utm_content=DAGCN8gPaLY&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+![Blue and Yellow Professional 
+Business YouTube Thumbnail_20240412_222933_0000](https://github.com/patriciasukore/patriciasukore/assets/128140402/6f8e6b46-7566-4a0f-8303-dcdf04f40e04)
 
 
 
